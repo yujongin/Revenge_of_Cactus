@@ -84,7 +84,7 @@
 ![최종발표_38](https://github.com/gkxotjd12312/Revenge_of_Cactus/assets/54784059/2addb93f-b475-4a57-9222-747b8e0bd32b)
 ![최종발표_39](https://github.com/gkxotjd12312/Revenge_of_Cactus/assets/54784059/426bfe12-7a62-4e9d-8c07-5b85ce1e721d)
 ![최종발표_40](https://github.com/gkxotjd12312/Revenge_of_Cactus/assets/54784059/d78f9778-d134-44d4-8819-b9f304805a8a)
- - 이후 게임을 휴대폰이나 다른 플랫폼에서 사용할 수 있게 만들려고 하였고 멀티를 생각했지만 서로 사회로 나가버려 프로젝트는 여기서 막을내렸습니다. 지금까지 봐주셔서 감사합니다.
+ - 지금까지 봐주셔서 감사합니다.
 
 ![최종발표_41](https://github.com/gkxotjd12312/Revenge_of_Cactus/assets/54784059/6b2ed4e7-265a-4ed3-afe0-43405448e2b0)
 ![최종발표_42](https://github.com/gkxotjd12312/Revenge_of_Cactus/assets/54784059/47730cca-7586-4465-bb00-06a9bf171ddd)
